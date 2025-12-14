@@ -1,0 +1,1 @@
+# AppCreation10xLovable-Uniquer
